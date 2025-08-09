@@ -6,4 +6,8 @@ Our principal Dr.Sehijpal Singh then motivated us to make the best use of the op
 # Day 2
 The second day of the induction started with a great joy with Priyadarshani mam with an expert lecture on UNIVERSAL HUMAN VALUES in the auditorium.She told us that everything in our life is not continuous it keeps on changing time to time Happiness and prosperity do not remain in continuity.After that a new opportunity arose thanks to Dr.Arvind Dhingra(director of STEP and incharge of TAC) He told us about the benefits of unity with the help of a game.For thus he asked 7 boys and 7 girls.Determined not to miss the opportunity I joined them.We played the game and got introduced to our peers. On that same day we had a proficiency test of english and mathematics.
 # Day 3
+Today marked the third day of my college journey and it was packed with learning,interaction and leadership.
+The first session was by the causmic club.They told us about the benefits of the caustic club.After that we had a wonderful and prosperous lecture with Dr.Randhir Singh on "the conduct of exams" and he told us about the infrastructure,hostel and mess. In short the lecture by him was very adorable.Then we had a chance to meet priyadarshani mam for the lecture on UNIVERSAL HUMAN VALUES-2.After having a short break we had a P2P lecture where the seniors taught us about the coding language c++.they also told us about the exams taken in the college and about the faculty members.After that we had a lecture of english with Manjot Kaur mam who talked to us like our friend at first she took our introduction and then she told us about the syllabus.And the day ended with a great happiness and joy.
+# Day 4
 
+# Day 5
